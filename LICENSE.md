@@ -1,4 +1,4 @@
-#  
+#  oil empire Scripts premium is the best oil empire Script, featuring aimbot and no cooldown. Safe and powerful for all your needs.
 
 
 
